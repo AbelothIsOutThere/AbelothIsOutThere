@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AbelothIsOutThere
+- 👀 I’m interested in study backend and qa
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on any newby project
+- 📫 discord:cmepkalocb
